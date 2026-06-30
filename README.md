@@ -1,0 +1,1 @@
+# kachika-ai-vocabulary
